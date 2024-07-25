@@ -4,7 +4,7 @@
  -💞️ I’m looking to collaborate on ... massive projects
 - 📫 How to reach me ...georgesenbajo@gmail.com
 - 😄 Pronouns: ...
-I am a Greek weirdo- ⚡ Fun fact: ...
+- ⚡ Fun fact: ... I am a creator
 
 <!---
 Kayaltar/Kayaltar is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
