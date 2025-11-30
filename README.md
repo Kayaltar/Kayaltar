@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...blockchain technology
 - 🌱 I’m currently learning ... frontend programming
  -💞️ I’m looking to collaborate on ... massive projects
-- 📫 How to reach me ...georgesenbajo@gmail.com
+- 📫 How to reach me ...kayodealtar@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ... I am a creator
 
